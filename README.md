@@ -1,0 +1,2 @@
+# fundamentals
+required viewing
